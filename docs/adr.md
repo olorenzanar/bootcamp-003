@@ -1,0 +1,1 @@
+Stranger Fing es mejor que Bing Bang Rewrite para el caso práctico
